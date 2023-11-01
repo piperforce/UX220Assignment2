@@ -8,7 +8,7 @@ npm install
 npm start
 ```
 
-or surf to [https://diy-pwa.dev](https://diy-pwa.dev/~/gh/rhildred/UX220Assignment2). 
+or surf to [https://diy-pwa.dev](https://diy-pwa.dev/~/gh/piperforce/UX220Assignment2). 
 
 ```bash
 npm install
