@@ -1,1 +1,3 @@
-Experience 5 here.
+<h3>Switching Majors</h3>
+
+In the summer on 2022, I decided to change my major from Criminology to Journalism at Laurier. This was not an easy decision as I was worried about regretting it or switching into yet again a major I wouldn't enjoy. I loved coming into Journalism as I found the peers more engaging and involved making me comfortbale also being involved. I love my major now and I am so happy I switch as it has helped my mental health so much. I'd give this experience an A. 

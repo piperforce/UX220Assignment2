@@ -1,1 +1,3 @@
-### 
+<h3> Graduating During Covid</h3>
+
+In June 2020, the world was shut down and I was graduating highschool. I didn't get the typical graduation but intead recieved a lawn sign and a graduation YouTube video sent to me by the school. I loved not having all the attention on me and spending more time sleeping, but I feel like I lost out on a huge stepping stone in life. Most get to graduate with their peers they grew up with for the last 4 years and I didn't get that. I'd rate this a B experience

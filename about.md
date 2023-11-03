@@ -1,1 +1,1 @@
-About page
+Hi, I'm Piper! I'm a 4th year student at Wilfrid Laurier. My major is Digital Media & Journalsim. I've Created this website to showcase my life to this point and hopefully add some work of mine to display what I can do.
